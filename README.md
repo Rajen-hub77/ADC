@@ -25,6 +25,6 @@ Thank You'
 
  ## contact mail
 
-rajencC090@gmail.com
+rajenc090@gmail.com
 
 
